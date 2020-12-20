@@ -1,0 +1,1 @@
+oil ,salt, red chilli, turmeric, pepper ,onion ,egg, ginger, coriander, green chilli, mint leaves and curry leaves
